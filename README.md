@@ -1,1 +1,1 @@
-# Sample
+Just a Brief Note
